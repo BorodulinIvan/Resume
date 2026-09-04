@@ -205,6 +205,10 @@
 
 <img width="1051" height="744" alt="image" src="https://github.com/user-attachments/assets/a0f3be87-cd1c-4358-a894-e55b61306f54" />
 
+**2025**
+<img width="522" height="736" alt="image" src="https://github.com/user-attachments/assets/90d4a5d8-e89c-46c7-87d7-0100880eefc5" />
+
+
 ---
 
 ## Достижения
